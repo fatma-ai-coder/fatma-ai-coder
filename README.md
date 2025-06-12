@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Fatima Alamoudi
+# Hi there! 👋 I'm Fatma Alamoudi
 
 I'm a creative and curious Computer Science student at **Dar Al Hekma University**, graduating in 2025. I love blending **innovation and technology** to solve real-world problems, especially with **AI and machine learning**. 
 
