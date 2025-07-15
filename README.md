@@ -47,4 +47,3 @@ I’m not just about writing code — I love **thinking outside the box** and ap
 ## 📫 Let’s Connect
 
 - Email: fatma.alamoudi.ai@outlook.com  
-- LinkedIn: *(coming soon)*  
